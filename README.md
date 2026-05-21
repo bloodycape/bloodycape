@@ -4,7 +4,7 @@
   ⠀⠀⠀
 　
 
- <p align="center"><img width="400" height="400" alt="blur_edges" src="https://github.com/user-attachments/assets/63acae70-e297-4504-a3dc-fbf97047d624" />
+ <p align="center"><img width="400" height="400"src="https://i.ibb.co/JRh8CRwb/IMG-1495.jpg)" />
 
    
   　<p align="center">[rentry](https://rentry.co/anjo) 𖤣.𖥧.𖡼.⚘ [ata](https://tilltheend.atabook.org/) 𖥧.⚘.𖤣.𖡼 [twt](bahhhhba) 
