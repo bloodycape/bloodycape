@@ -1,5 +1,5 @@
 
-　<p align="center">❝ I never knew you were so scared. ❞
+　<p align="center">Hi
 
   ⠀⠀⠀
 　
